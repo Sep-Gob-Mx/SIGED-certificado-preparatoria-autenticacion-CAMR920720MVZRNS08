@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-CAMR920720MVZRNS08
-CAMR920720MVZRNS08
